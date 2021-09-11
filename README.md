@@ -23,3 +23,6 @@ Preferred materials:
 
 Tips:
 ===================
+•	Know your audience! It is critical that you know your audience and their expertise level. The emphasis of this program will be on presenting to children and novice audiences. 
+•	Some of the questions/jargon may be best engaged to slightly more technical audiences. Here I split green to being for a general novice audience but red being added in for a       more experienced audience/questions.
+•	When presenting to elementary school and middle school children they have very creative suggestions for printing so go along with it because you really can print almost           everything! 
